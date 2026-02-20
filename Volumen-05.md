@@ -867,7 +867,8 @@ Miró al horizonte. Vio otra balsa acercándose desde el otro lado del mundo.
 Su corazón dio un vuelco.
 Sabía quién era.
 La resonancia final.
-—Lira —susurró.## Capítulo 13: La Isla del Origen (El Centro)
+—Lira —susurró.
+## Capítulo 13: La Isla del Origen (El Centro)
 La llegada de la segunda balsa no fue una coincidencia; fue una sincronía
 cósmica. El mar parecía celebrar, brillando con una luz que no venía del sol, sino
 de la convergencia de dos destinos. El joven sintió que la marea de su propia
